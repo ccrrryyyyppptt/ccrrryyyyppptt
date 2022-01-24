@@ -1,3 +1,4 @@
-(Only for a friend of mine - Dyo -)
-Bel reactor deactivated, got Kaua, Mack and Eliza though. 
-Check your instagram chats at exactly 7:00 p.m Y O U R time. Ajax commision accepted with certain contract issues.
+(Only for my friends)
+Ajax commission commenced, Twilight act scene 5
+Jasmine bouquet + maybe quackity or his OC for Ted, April 9 <3
+April 17th Dyo friendship anniv 
